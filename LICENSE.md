@@ -1,4 +1,4 @@
-
+Enhance your ProtonVPN experience with custom ProtonVPN Extension | obfuscation + multi-device-support, the #1 extension. Includes obfuscation and multi-device-support for a safer
 
 
 
